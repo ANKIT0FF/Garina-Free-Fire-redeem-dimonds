@@ -1,2 +1,2 @@
-# Garina-Free-Fire-redeem-dimonds
-ankitkumar725680490@gmail.com you
+# Garina-Free-Fire-redeem-dimonds.no my info
+you'
